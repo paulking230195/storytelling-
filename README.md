@@ -6,6 +6,6 @@ Mr Sam exercises most days of the week , the exercise helps to boost his immune 
 
 Mr Sam doesn't drink alcohol because alcohol dehydrates the skin and in time, damages the skin. This can make someone older. 
 
-Mr Sam eats healthy diets . He eats mostly fruits and vegetables because it helps prevent  premature aging of his skin. He rarely eat foods carbohydrates because it can accelerate aging. 
+Mr Sam eats healthy diets . He eats mostly fruits and vegetables because it helps prevent  premature aging of his skin. He rarely eat foods rich carbohydrates because it can accelerate aging. 
 
 Mr Sam drinks plenty of water because it  helps in keeping him hydrated .
